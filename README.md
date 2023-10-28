@@ -25,6 +25,8 @@ https://www.linkedin.com/in/shivaansh-bawa-b16239189?utm_source=share&utm_campai
 ---
 [![](https://visitcount.itsvg.in/api?id=ShivaanshBawa&icon=6&color=7)](https://visitcount.itsvg.in)
 
+[![](https://visitcount.itsvg.in/api?id=ShivaanshBawa&label=Followers%20&icon=6&pretty=true)](https://visitcount.itsvg.in)
+
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
 
 <!---
